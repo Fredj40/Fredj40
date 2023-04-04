@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Fred, I am 39 and i live next to Dax
+- 👋 Hi, I’m Fred, I am 40 and i live next to Dax
 - 👀 I’m interested in sport like tennis and football, moto and nature
 - 🌱 I’m currently learning to code  
 
